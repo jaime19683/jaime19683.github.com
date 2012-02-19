@@ -2,4 +2,4 @@
 
 Always interested in increasing his **GQ** (*geek quotient*) he is interested in applications of physical and mathematical models to public policy issues.  He writes  at [**Null Hypothesis**](http://www.y8s.org/blog) and tweets as **@jaime27**.  
 
-Most at home on (and in) the [**Holy Waters**](http://www.michigan.gov/dnr/0,4570,7-153-10366_46403_59159-194797--,00.html) of the Au Sable river in northern Michigan, **Jamie's** interests include, fly fishing, wooden boats, cross country skiing, and [**Sacred Harp**](http://fasola.org) singing.
+Most at home on (and in) the [**Holy Waters**](http://www.michigan.gov/dnr/0,4570,7-153-10366_46403_59159-194797--,00.html) of the Au Sable river in northern Michigan his interests include fly fishing, building and using wooden boats, cross country skiing, and [**Sacred Harp**](http://fasola.org) singing.
