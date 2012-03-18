@@ -2,4 +2,4 @@
 
 Concerned about maintaining his ***geek quotient*** Jamie is interested in applications of physical and mathematical models to public policy issues, open source software, and complexity.  He writes and rants  at [**Null Hypothesis**](http://www.y8s.org/blog), [**Heteroscadasticity**](http://jaime19683.github.com/hetero/), and tweets as [**@jaime27**](https://twitter.com/jaime27).  
 
-Most at home on (and in) the [**Holy Waters**](http://www.michigan.gov/dnr/0,4570,7-153-10366_46403_59159-194797--,00.html) of the Au Sable river in northern Michigan his interests include fly fishing, building and using wooden boats, cross country skiing, and [**Sacred Harp**](http://fasola.org) singing.
+Most at home on (and in) the [**Holy Waters**](http://www.michigan.gov/dnr/0,4570,7-153-10366_46403_59159-194797--,00.html) of the Au Sable river in northern Michigan his other interests include orienteering, fly fishing, building and using wooden boats, cross country skiing, and [**Sacred Harp**](http://fasola.org) singing.
